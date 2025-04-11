@@ -37,7 +37,7 @@
 
 ### 📫 Let's Connect
 
-- 📧 Email: mohd.zaryab.work@gmail.com  
+- 📧 Email: zaryabansari98@gmail.com  
 - 💼 [LinkedIn](https://www.linkedin.com/in/mohd-zaryab/)  
 
 ---
